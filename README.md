@@ -17,9 +17,3 @@ You’ll witness the buying, tracking, and selling process in action, with profi
 
 If you’re impressed by the demo and want to start sniping tokens like a pro, I can share the entire sniper with you. To get started, just reach out:
 
-# 👨‍💻 Author
-### 📞 Telegram: [0xOpsDev](https://t.me/its0xopsdev)   
-https://t.me/its0xopsdev
-
-
-Once we connect on Telegram, we can discuss further details through other communication channels.
